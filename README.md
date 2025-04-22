@@ -7,4 +7,4 @@
                                 
 ᨑ  evillious  -  vocaloid  !!
 
-carrd. 4 more inf
+╰  .  carrd. `4 more` inf *abt* me
