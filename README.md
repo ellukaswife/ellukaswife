@@ -9,8 +9,9 @@
 
   .  carrd. `4 more` inf *abt* me
   
-꒰     ׂ    evil-li-ous  ♡     .      𓈒  VO*CALO*ID   .   aln**st**
+꒰     ׂ    evillious  ♡     .      𓈒  VO*CALO*ID   .   aln**st**
 
-╰﹒ c + h     /    int  =  OK!
+╰﹒ c + h     /    int  =  __OK__!
 
    I love roleplaying ᘏ
+  
