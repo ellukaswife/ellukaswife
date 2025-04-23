@@ -13,5 +13,7 @@
 
 ╰﹒ c + h     /    int  =  __OK__!
 
+pls ~DNI~ if **under** 14
+
    I love roleplaying ᘏ
   
