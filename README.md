@@ -9,8 +9,8 @@
 
    s**he**    /    ~he~r
 
-   ![image alt](https://github.com/ellukaswife/ellukaswife/blob/044486f33c0d59c28f9712150c59f992b68feff8/lesbflaggpixel.png)
-                                
+ ![image alt](https://github.com/ellukaswife/ellukaswife/blob/044486f33c0d59c28f9712150c59f992b68feff8/lesbflaggpixel.png)
+ ![image alt](https://github.com/ellukaswife/ellukaswife/blob/03bf3383fa7b90c57e763b53e284415c825a6e16/lithromanticflagpixel.png)                             
 ᨑ  evillious  -  vocaloid  !!
 
   .  carrd. `4 more` inf *abt* me
