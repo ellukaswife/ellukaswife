@@ -15,5 +15,5 @@
 
 
 
-   I love roleplaying ᘏ
+   I love roleplaying and finding new friends ᘏ
   
