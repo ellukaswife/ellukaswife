@@ -8,6 +8,9 @@
 ᨑ  evillious  -  vocaloid  !!
 
   .  carrd. `4 more` inf *abt* me
+  
 ꒰     ׂ    evillious  ♡     .      𓈒  VOCALOID
+
 ╰﹒ c + h     /    int  =  OK!
-      I love roleplaying ᘏ
+
+   I love roleplaying ᘏ
