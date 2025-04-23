@@ -9,7 +9,7 @@
 
   .  carrd. `4 more` inf *abt* me
   
-꒰     ׂ    evillious  ♡     .      𓈒  VOCALOID
+꒰     ׂ    evillious  ♡     .      𓈒  VOCALOID   .   alnst
 
 ╰﹒ c + h     /    int  =  OK!
 
