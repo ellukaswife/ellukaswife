@@ -5,7 +5,9 @@
 
 
 
-  s**he**    /    ~he~r
+  
+
+   s**he**    /    ~he~r
                                 
 ᨑ  evillious  -  vocaloid  !!
 
@@ -13,8 +15,8 @@
   
 ꒰     ׂ    evillious  ♡     .      𓈒  VO*CALO*ID   .   aln**st**
 
-╰﹒ c + h     /    int  =  __OK__!
+╰﹒ c + h     /    int  =  __OK__!  
 
 
 
-   I love roleplaying and finding new friends ᘏ
+   I love roleplaying and **finding new friends** ᘏ
