@@ -1,3 +1,5 @@
+![image alt](https://github.com/ellukaswife/ellukaswife/blob/72c3cbb54111a11d6559bed2a4026e8396c482f6/blueheaderupside.webp)
+
 ♡   .   .   .**"tell me, my father, is this is the correct choice? Without a heart, I can't understand"**
 
 ![image alt](https://github.com/ellukaswife/ellukaswife/blob/4ab8039d2eb3a85e6fe697a7821da6d2b2ae6024/Screenshot%202025-04-22%20214010.png)
