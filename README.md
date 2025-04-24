@@ -1,7 +1,7 @@
 
 **WIP** !!
 
-__________________________________ ♡   .   .   .**"tell me, my father, is this is the correct choice? Without a heart, I can't understand"**
+ ♡   .   .   .**"tell me, my father, is this is the correct choice? Without a heart, I can't understand"**
 
   s**he**    /    ~he~r
 
