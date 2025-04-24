@@ -25,3 +25,5 @@
 
 
    I love roleplaying and **finding new friends** ᘏ
+
+  ![image alt](https://github.com/ellukaswife/ellukaswife/blob/baf08a2a44f1d19d8778060088322c15b959c02d/blueheaderdownside.webp)
