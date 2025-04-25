@@ -1,7 +1,6 @@
-
-
-
 ꒰  **WIP** !!    ꒱
+ 
+ ![image alt](https://github.com/ellukaswife/ellukaswife/blob/9f15cec7436ef198b33f9d34990f7cb5a72f3467/blueheaderupside.webp)
 
  ♡   .   .   .**"tell me, my father, is this is the correct choice? Without a heart, I can't understand"**
 
