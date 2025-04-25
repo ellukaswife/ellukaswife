@@ -9,11 +9,11 @@
  
   ᨑ  evillious  -  vocaloid  !!
 
- carrd. `4 more` inf *abt* me  ◞ 
+ ![image alt](https://github.com/ellukaswife/ellukaswife/blob/10ef73b49c72656b0f9eb1837359f359ec4e1242/darkbluebowgif.gif) carrd. `4 more` inf *abt* me  ◞ 
  
-   ꒰ ׂ evillious  ♡     .      𓈒  VO*CALO*ID   .   aln**st**
+   ꒰ ׂ evillious  ♡     .      𓈒  VO*CALO*ID   .   aln**st**  ![image alt](https://github.com/ellukaswife/ellukaswife/blob/de5fa712bd6a667e7312c6445a50115802f94f1f/IMG_3501.gif)
 
-  ╰﹒ c + h     /    int  =  __OK__!   -  w2i if im **afk** / n~ot~ responding  
+![image alt](https://github.com/ellukaswife/ellukaswife/blob/ba1d3d1e69d8b4109854f608cdea4643edb70283/kaitotinypixel.gif)  ╰﹒ c + h     /    int  =  __OK__!   -  w2i if im **afk** / n~ot~ responding  
 
   I'd love to be friends !! ☁️
 
