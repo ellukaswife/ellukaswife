@@ -17,6 +17,8 @@
 
   ╰﹒ c + h     /    int  =  __OK__!   -  w2i if im **afk** / n~ot~ responding  
 
+  I'd love to be friends !! ☁️
+
 ![image alt](https://github.com/ellukaswife/ellukaswife/blob/484a99615048c03226a63c2bea98c3d4254e3cb2/Screenshot%202025-04-22%20214010.png)
 
  ![image alt](https://github.com/ellukaswife/ellukaswife/blob/64189302666548b3423a06b332a2ffec369c3cce/blueheaderdownside.webp)
