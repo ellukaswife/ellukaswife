@@ -1,5 +1,7 @@
 
-**WIP** !!
+
+
+꒰  **WIP** !!    ꒱
 
  ♡   .   .   .**"tell me, my father, is this is the correct choice? Without a heart, I can't understand"**
 
@@ -10,7 +12,8 @@
  
   ᨑ  evillious  -  vocaloid  !!
 
- carrd. `4 more` inf *abt* me   
+ carrd. `4 more` inf *abt* me  ◞ 
+ 
    ꒰ ׂ evillious  ♡     .      𓈒  VO*CALO*ID   .   aln**st**
 
   ╰﹒ c + h     /    int  =  __OK__!   -  w2i if im **afk** / n~ot~ responding  
