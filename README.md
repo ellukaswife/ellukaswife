@@ -1,4 +1,5 @@
-![](https://github.com/ellukaswife/ellukaswife/blob/fd34d0b73a86adb24baf49ca5d56a0f65a3f820c/1yqwbv.png)
+
+![](https://github.com/ellukaswife/ellukaswife/blob/0c36765b1a14cb38bd373059d5fdff5f7620f728/1yqwbv.png)
 
 *"saa nemurinasai.."* ᶻz 
 
