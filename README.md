@@ -1,16 +1,16 @@
-![](https://github.com/ellukaswife/ellukaswife/blob/6e992d85d36b7b80d4a1d6576981c78a5f18db1e/Eternal_sugar_gacha_sequence_2_animation.webp)
+![](https://github.com/ellukaswife/ellukaswife/blob/fd34d0b73a86adb24baf49ca5d56a0f65a3f820c/1yqwbv.png)
 
-*"saa nemurinasai.."*
+*"saa nemurinasai.."* ᶻz 
 
 # ꒰  **4 PONY TOWN**
 
 ![](https://github.com/ellukaswife/ellukaswife/blob/9c6d04a2db859e135307c8a4550f049367cec801/75005b.png)
 
-twitter artist / animator , ff to check *me* out! :3
+☰ twitter artist / animator , ff to check *me* out! :3
 
 ![image](https://github.com/ellukaswife/ellukaswife/blob/75b4661a9a9a29b861f54d77fa9ea51747b8a400/eternalsugargif.gif) 
 
-Hello my name is Aurora or Willow !! 
+♡. Hello my name is Rora or Willow !! 
 
 I'm a girl and go by she◞ her preffered but he / him is okay 
 
