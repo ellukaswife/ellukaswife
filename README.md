@@ -13,7 +13,7 @@
 
 ♡. Hello my name is Rora or Willow !! 
 
-I'm a girl and go by she◞ her preffered but he / him is okay 
+I'm a girl and go by she / her preffered but he / him is okay 
 
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵ 
 
