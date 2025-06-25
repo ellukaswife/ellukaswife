@@ -7,13 +7,13 @@
 
 ![](https://github.com/ellukaswife/ellukaswife/blob/9c6d04a2db859e135307c8a4550f049367cec801/75005b.png)
 
-☰  ⠀twitter artist / animator , ff to check *me* out! :3
+☰  ⠀twitter artist / animator , tho on long hiatus due to burnouts and depression
 
 ![image](https://github.com/ellukaswife/ellukaswife/blob/75b4661a9a9a29b861f54d77fa9ea51747b8a400/eternalsugargif.gif) 
 
 ♡. Hello my name is Rora or Willow !! 
 
-I'm a girl and go by she / her preffered but he / him is okay 
+I'm a girl and go by she / her preffered 
 
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵ 
 
