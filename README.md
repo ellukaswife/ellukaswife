@@ -4,10 +4,11 @@
                        ![image](https://github.com/ellukaswife/ellukaswife/blob/75b4661a9a9a29b861f54d77fa9ea51747b8a400/eternalsugargif.gif) 
 
 
-                                 ♡. Rora / Willow
+                                 ♡. Rora / Ryba
                                                                                
 
                             ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵ 
 
 
                               c + h / int pls pls I need friends
+                              **Follow @ellukaswife** on ig I do art !
