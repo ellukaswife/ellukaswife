@@ -10,5 +10,5 @@
                             ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵ 
 
 
-                              c + h / int pls pls I need friends
+                           აৎ  .  ☆   c + h / int pls pls I need friends
                               **Follow @ellukaswife** on ig I do art !
