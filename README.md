@@ -13,3 +13,5 @@
 
                            აৎ  .  ☆   c + h / int pls pls I need friends
                               **Follow @fishacatt** on ig I do art !
+                          **Things I'm into!** > cookie run, 
+                                                  alien stge, vocaloid, evillious
