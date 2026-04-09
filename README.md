@@ -5,7 +5,7 @@
  
 
 
-                                  ♡. Rora / Ryba     ｡˚ᶻ 𝗓 
+                                  ♡. Rora / Ryba  _17_  ｡˚ᶻ 𝗓 
                                                                                
 
                             ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵ 
@@ -17,5 +17,7 @@
                               
                           **Things I'm into!** > cookie run, 
                                                   alien stge, vocaloid, evillious
-                                                  
+                                                 
+                        Feel free to int / c + h / pretty much anything !! **I don't** bite !! but  
+                             I might not respond cus I'm probabs offtab or afk ;[
                      
