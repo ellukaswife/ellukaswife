@@ -11,13 +11,13 @@
                             ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵ 
 
 
-                           აৎ  .  ☆   c + h / w2i pls pls I need friends
+                           აৎ . ☆ ![](https://i.postimg.cc/tTw8kVLp/IMG-4188.gif) c + h / w2i pls pls I need friends
                               **Follow @acidfeesh** on ig I do art !
 
                               
                           **Things I'm into!** > cookie run, 
-                                                  alien stge, vocaloid, evillious
+                                                  alien stge, _vocaloid_, evillious
                                                  
                         Feel free to int / c + h / pretty much anything !! **I don't** bite !! but  
                              I might not respond cus I'm probabs offtab or afk ;[
-                     
+                        ![](https://i.postimg.cc/bJmFGmnB/IMG-3507.gif)  **my only dni** is chronically online people
