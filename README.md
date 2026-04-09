@@ -12,7 +12,7 @@
 
 
                            აৎ  .  ☆   c + h / w2i pls pls I need friends
-                              **Follow @fishacatt** on ig I do art !
+                              **Follow @acidfeesh** on ig I do art !
 
                               
                           **Things I'm into!** > cookie run, 
