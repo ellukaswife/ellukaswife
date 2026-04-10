@@ -20,4 +20,4 @@
                                                  
                         Feel free to int / c + h / pretty much anything !! **I don't** bite !! but  
                              I might not respond cus I'm probabs offtab or afk ;[
-                 ![](https://i.postimg.cc/bJmFGmnB/IMG-3507.gif)   𐙚.𓏵   only **DNI** is chronically online people. Was once one of yall.
+                 ![](https://i.postimg.cc/bJmFGmnB/IMG-3507.gif)   𐙚.𓏵   only **DNI** is chronically online people.
