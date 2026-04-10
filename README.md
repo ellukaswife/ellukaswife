@@ -5,7 +5,7 @@
  
 
 
-                                  ♡. Rora / Ryba  _17_  ｡˚ᶻ 𝗓 
+                               ♡. Rora / Ryba  _17_  ｡˚ᶻ 𝗓 ![me](https://files.catbox.moe/3651yj.gif)
                                                                                
 
                             ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵ 
