@@ -1,11 +1,6 @@
                               ![](https://github.com/ellukaswife/ellukaswife/blob/9c6d04a2db859e135307c8a4550f049367cec801/75005b.png)
-                                         ིྀ︶︶֪︶ ୨ৎ︶֪︶︶ ིྀ
-  
-                                 <img width="159" height="159" alt="image" src="https://github.com/user-attachments/assets/141757f7-512a-40be-9709-bd042a367b94" />
- 
-
-
-                               ♡. Rora / Ryba  _17_  ｡˚ᶻ 𝗓 ![me](https://files.catbox.moe/3651yj.gif)
+                                      
+                       ♡. Rora / Ryba  _17_  ｡˚ᶻ 𝗓 ![me](https://files.catbox.moe/3651yj.gif)
                                                                                
 
                             ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵ 
