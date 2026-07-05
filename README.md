@@ -7,6 +7,6 @@
 
  Always feel free to interact I am super lonely and need friends just beware I yap **SO MUCH** and you will be hearing about the randomest bs ever 
 
-![](https://files.catbox.moe/41ahqy.png)  ![](https://files.catbox.moe/hkf0a7.pnj)  ,,ᴗ  ̫ ᴗ,,
+![](https://files.catbox.moe/5cl6yo.png)  ,,ᴗ  ̫ ᴗ,,  ![](https://files.catbox.moe/hkf0a7.pnj)
 
 𔓕˚˖˙︶︶‌︶︶︶︶︶‌˙˖˚𔓕
