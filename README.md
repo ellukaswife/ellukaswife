@@ -5,8 +5,5 @@
 
 ![](https://files.catbox.moe/ti6g59.gif) _Jane ~ Rora_      ![](https://files.catbox.moe/amao13.gif)      artist / writer ![](https://files.catbox.moe/b7txs6.gif)
 
- Always feel free to interact I am super lonely and need friends just beware I yap **SO MUCH** and you will be hearing about the randomest bs ever 
+ Always feel free to interact I am super lonely and need friends just beware I yap **SO MUCH** and you will be hearing about the randomest bs ever ,,ᴗ  ̫ ᴗ,,  
 
-![](https://files.catbox.moe/5cl6yo.png)  ,,ᴗ  ̫ ᴗ,,  ![](https://files.catbox.moe/hkf0a7.pnj)
-
-𔓕˚˖˙︶︶‌︶︶︶︶︶‌˙˖˚𔓕
