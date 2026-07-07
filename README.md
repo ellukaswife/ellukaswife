@@ -7,3 +7,7 @@
 
  Always feel free to interact I am super lonely and need friends just beware I yap **SO MUCH** and you will be hearing about the randomest bs ever ,,ᴗ  ̫ ᴗ,,  
 
+![](https://files.catbox.moe/wwgs14.gif) ✧   **Pony Town** 
+
+I'm always open to *c+h*!!
+Please don't copy my ponies. I don't mind inspiration, after all I don't own the assets, but straight up tracing is just... scummy :(
