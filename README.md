@@ -5,9 +5,10 @@
 
 ![](https://files.catbox.moe/ti6g59.gif) _Jane ~ Rora_      ![](https://files.catbox.moe/amao13.gif)      artist / writer ![](https://files.catbox.moe/b7txs6.gif)
 
+![](https://files.catbox.moe/wwgs14.gif) ✧   **Pony Town** 
+
  Always feel free to interact I am super lonely and need friends !! Feel free to yap to me just be aware I  only go on pony town to afk so I might not always respond.
 
-![](https://files.catbox.moe/wwgs14.gif) ✧   **Pony Town** 
 
 I'm always open to *c+h* and w2i !!
 Please don't copy my ponies. I don't mind inspiration, after all I don't own the assets, but straight up tracing is just... scummy
