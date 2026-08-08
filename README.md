@@ -5,7 +5,7 @@
 
 ![](https://files.catbox.moe/ti6g59.gif) _Jane ~ Rora_      ![](https://files.catbox.moe/amao13.gif)      artist / writer ![](https://files.catbox.moe/b7txs6.gif)
 
- Always feel free to interact I am super lonely and need friends just beware I yap **SO MUCH** and you will be hearing about the randomest bs ever ,,ᴗ  ̫ ᴗ,,  
+ Always feel free to interact I am super lonely and need friends !! Feel free to yap to me just be aware I  only go on pony town to afk so I might not respond.
 
 ![](https://files.catbox.moe/wwgs14.gif) ✧   **Pony Town** 
 
