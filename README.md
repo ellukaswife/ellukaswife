@@ -10,7 +10,7 @@
  Always feel free to interact I am super lonely and need friends !! Feel free to yap to me just be aware I  only go on pony town to afk so I might not always respond.
 
 
-I'm always open to *c+h* and w2i !!
+I'm always open to *c+h* / w2i !!
 Please don't copy my ponies. I don't mind inspiration, after all I don't own the assets, but straight up tracing is just... scummy
 
 ![](https://media.discordapp.net/attachments/1316053600413159565/1525504334417100991/Screenshot_2026-07-11_160901.png?ex=6a53a01f&is=6a524e9f&hm=dca0835ccd951ecaf7115e82a8d8ccfbd69ff49e71b09fdf2f2ccd1cffa2d530&=&format=webp&quality=lossless&width=281&height=332)
