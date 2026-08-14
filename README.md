@@ -18,5 +18,5 @@ I'm **always** open to *c+h* / w2i !!  ₊⊹݂
 ![](https://media.discordapp.net/attachments/1316053600413159565/1525504334417100991/Screenshot_2026-07-11_160901.png?ex=6a53a01f&is=6a524e9f&hm=dca0835ccd951ecaf7115e82a8d8ccfbd69ff49e71b09fdf2f2ccd1cffa2d530&=&format=webp&quality=lossless&width=281&height=332)
 
 ⟡﹒ about me  ﹐ ﹅  
-socially awkward lesbian, I draw and write, fvorite game is minecraft, I'm catholic and from europe
+socially awkward lesbian, I draw and write, favorite game is minecraft, I'm catholic and from europe
 
